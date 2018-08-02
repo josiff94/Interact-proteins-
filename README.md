@@ -13,3 +13,6 @@ Hola padre Jossif: soy Sandy de las Pitayas en mi segunda semana de posgrado
 
 Sí señor yo soy de rancho, de botas y a caballo jajajajajaja
 
+git summit jajajajajajajaa
+
+Va a explotar nuestro cerebro por decir muchos git summit jajajaja
