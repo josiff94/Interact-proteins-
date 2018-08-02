@@ -9,4 +9,6 @@ ligas...
 
 Resulta que segun unas referecnias no se debe de hacer asi.
 
+Hola padre Jossif: soy Sandy de las Pitayas en mi segunda semana de posgrado
+
 
