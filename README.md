@@ -16,3 +16,5 @@ Sí señor yo soy de rancho, de botas y a caballo jajajajajaja
 git summit jajajajajajajaa
 
 Va a explotar nuestro cerebro por decir muchos git summit jajajaja
+
+git summit NO ESSSSSS... <<<<< FATAL ERROR >>>>
